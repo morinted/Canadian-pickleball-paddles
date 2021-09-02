@@ -8,7 +8,7 @@ List of Canadian pickleball paddle manufacturers
     Their design goal is to create accessible and affordable high-quality paddles.
 - [Brick\*House Paddles](https://brickhousepaddles.com)
     
-    Designed and manufactured in St Mary's, Ontario since 2020.
+    Designed and manufactured in St Marys, Ontario since 2020.
     
     Brick\*House paddles feature a distinct wood face on top of a fiberglass layer and polymer core.
 - [Combat Paddles](https://combatpaddles.com/)
